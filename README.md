@@ -1,5 +1,6 @@
 # rax-drok
-Make your HQ drok in mint
+Make your HQ drok today
+
                z
              z"F"$$.
        -%- . Led$$$$P-
